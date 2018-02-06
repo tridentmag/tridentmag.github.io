@@ -1,1 +1,0 @@
-# tridentmag.github.io
